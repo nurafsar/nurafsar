@@ -1,4 +1,4 @@
-# 👋 Hello, I'm Nur Afsar!
+# 👋 Hello, I'm Nur (Marketer) Afsar!
 
 I'm a passionate **Digital Marketer** and the **Founder & CEO** of [GROWTH UP DIGITAL](https://example.com). With over a year of experience in **Facebook and Instagram Ads Marketing**, I help businesses grow their online presence and increase revenue through creative digital marketing strategies.
 
